@@ -8,7 +8,7 @@
 >自由にご利用、複製、再配布することができますが、\
 >全て無保証とさせていただきます。
 
-( [アイコン画像/イラスト](https://www.ac-illust.com/main/detail.php?id=789862) )
+### [アイコン画像/イラストAC](https://www.ac-illust.com/main/detail.php?id=789862)
 
 ### 印字イメージ
 
